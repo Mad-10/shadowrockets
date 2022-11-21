@@ -6,6 +6,10 @@ https://github.com/shadowrocketcom/Shadowrocket/wiki
 
 我们的家，请收藏备份，网址不定期更新
 
+https://shadowingy.cn   永久可用
+
+https://xhj.shadowingy.cn   永久可用
+
 https://shadowingy.pw   永久可用
 
 https://www.shadowingy.pw  永久可用
